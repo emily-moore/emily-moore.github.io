@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Hi from Emily
 
 You can use the [editor on GitHub](https://github.com/emily-moore/emily-moore.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
