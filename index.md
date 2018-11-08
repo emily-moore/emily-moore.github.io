@@ -17,7 +17,8 @@ We went to Honeymoon Cove at Point Sampson.The water was beautifully warm and cr
 
 ## Arriving in Oz
 
-It was very strange being on the 
+It was very strange being on the plane I had dinner stright after breckfast and then suddenly it was midnight.
+our first night was in a bus
 
 
 
