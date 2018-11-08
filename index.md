@@ -2,7 +2,8 @@
 
 We went to Honeymoon Cove at Point Sampson.The water was beautifully warm and crystal clear! 
 
-<img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541641856/oz/emily-honeymoon-cove.png">
+<img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541641856/oz/emily-honeymoon-cove.png"
+ style="width:50%">
 
 **Me at Honeymoon Cove**
 
