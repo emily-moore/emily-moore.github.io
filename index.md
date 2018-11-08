@@ -17,8 +17,8 @@ We went to Honeymoon Cove at Point Sampson.The water was beautifully warm and cr
 
 ## Arriving in Oz
 
-It was very strange being on the plane I had dinner stright after breckfast and then suddenly it was midnight.
-our first night was in a bus
+It was very strange being on the plane with time racing by because of jet lag. I had dinner straight after breakfast and then suddenly it was midnight! Our first night in Oz was sleeping in a bus in mum's friends property.Their property is about one hundred acres! I love my room because it is on the balcony one window is completly made of glass.  
+                       
 
 
 
