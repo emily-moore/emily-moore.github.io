@@ -27,6 +27,8 @@ It was very strange being on the plane with time racing by because of jet lag. I
 
 <img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541653533/oz/brockway-bus.png">
 
+<img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541729023/oz/emilys-room.png">
+<img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541729026/oz/emilys-room-outside.png">
 
 ## Going to Oz
 
