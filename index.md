@@ -12,7 +12,12 @@ We  set of on a big camping adventure for three or four weeks.
 We set of from Bridgetown to mum's friends in Rollystone we stayed there for four nights. 
 We had a bonfire quickly before the fire ban.
 The next day we went to rolly pool and I slipped over on the wet rocks.They were so slippery that it was like a water slide.
-After our stay in Rollystone we did the long travel to Cue and stayed in a motel called The Lady Of The Murchison it was our last proper bed for weeks.From Cue we were heading to Karajini National Park but we didn't make it and had to camp at mount robinson road stop we were the only people around for miles because we were camping in the desert. I hated the toilets because they were long drop toilets and they stank really bad. We arrived in Karajini the next day.andit was beautiful it was always sunny and all the wonderful gorges with lovely pools to swim in.As soon as we got there we put up the tent and went to fortescue falls in dales gorge there was layered rock layered rock shelves all the way down to the way down to the water edge. There was also a water            
+
+After our stay in Rollystone we did the long travel to Cue and stayed in a motel called The Lady Of The Murchison it was our last proper bed for weeks.
+
+From Cue we were heading to Karajini National Park but we didn't make it and had to camp at mount robinson road stop we were the only people around for miles because we were camping in the desert. I hated the toilets because they were long drop toilets and they stank really bad. 
+
+We arrived in Karajini the next day.andit was beautiful it was always sunny and all the wonderful gorges with lovely pools to swim in.As soon as we got there we put up the tent and went to fortescue falls in dales gorge there was layered rock layered rock shelves all the way down to the way down to the water edge. There was also a water            
 
 We went to Honeymoon Cove at Point Sampson.The water was beautifully warm and crystal clear! 
 
