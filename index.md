@@ -19,15 +19,12 @@ From Cue we were heading to Karajini National Park but we didn't make it and had
 
 We arrived in Karajini the next day.andit was beautiful it was always sunny and all the wonderful gorges with lovely pools to swim in.As soon as we got there we put up the tent and went to fortescue falls in dales gorge there was layered rock layered rock shelves all the way down to the way down to the water edge. There was also a waterfall. Me and my family swam the rest of the day .we had a lovly time in karajini with lots af gorge walks and swimming.
 
-After karajini we went to Tom price but we didn't do much there.
+After karajini we went to Tom price but we didn't do much there
+exept swim.
 
-
-
-We went to Honeymoon Cove at Point Sampson.The water was beautifully warm and crystal clear! 
+After Tom Price we went to Honeymoon Cove at Point Sampson.The water was beautifully warm and crystal clear! 
 
 <img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541641856/oz/emily-honeymoon-cove.png">
-
-
 **Me at Honeymoon Cove**
 
 ## Arriving in Oz
