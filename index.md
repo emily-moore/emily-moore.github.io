@@ -22,9 +22,7 @@ We arrived in Karajini the next day.andit was beautiful it was always sunny and 
 After karajini we went to Tom price but we didn't do much there
 exept swim.
 
-After Tom Price we went to Honeymoon Cove at Point Sampson.The water was beautifully warm and crystal clear! 
-
-<img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541641856/oz/emily-honeymoon-cove.png">
+After Tom price we went to Point Sampsion.We walked to a beach called Honeymoon eymoon-cove.png">
 **Me at Honeymoon Cove**
 
 ## Arriving in Oz
