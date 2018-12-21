@@ -29,7 +29,7 @@ After Tom Price we went to Honeymoon Cove at Point Sampson.The water was beautif
 
 ## Arriving in Oz
  
-It was very strange being on the plane with time racing by because of jet lag. I had dinner straight after breakfast and then suddenly it was midnight! Our first night in Oz was sleeping in a bus in mum's friends property. Their property is about one hundred acres! Now we are staying in Bridgetown with my grandparents. We are going to stay here for the next six months. I love my room because it is on the balcony one window is completly made of glass.  
+It was very strange being on the plane with time racing by because of jet lag. I had dinner straight after breakfast and then suddenly it was midnight! Our first night in Oz was sleeping in a bus in mum's friends property. Their property is about one hundred acres! Now we are staying in Bridgetown with my grandparents. We are going to stay here for the next six months. I love my room because it is on the balcony. One wall is completly made of glass.  
 
 <img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541653533/oz/brockway-bus.png">
 
