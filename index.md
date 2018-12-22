@@ -4,8 +4,11 @@ We went to Donnelly River and there they feed wild animals of Oz although they d
   
 
 <img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541646800/oz/emily-kangaroo.png">
+
 **Me stroking a kangaroo**
+
 <img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541651686/oz/emu-and-chicks.png">
+
 **Emu and emu chicks**
 
 ## Road trip
