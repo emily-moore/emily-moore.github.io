@@ -4,6 +4,7 @@ We went to Donnelly River and there they feed wild animals of Oz although they d
   
 
 <img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541646800/oz/emily-kangaroo.png">
+**Me stroking a kangaroo**
 <img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541651686/oz/emu-and-chicks.png">
 
 ## Road trip
@@ -22,7 +23,7 @@ We arrived in Karajini the next day.andit was beautiful it was always sunny and 
 After karajini we went to Tom price but we didn't do much there
 exept swim in the pool.
 
-After Tom price we went to Point Sampson. We walked to a beach called Honeymoon Cove.
+After Tom price we went to Point Sampson. We walked to a beach called Honeymoon Cove and the water was beautifully crystal clear.
 <img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541641856/oz/emily-honeymoon-cove.png">
 **Me at Honeymoon Cove**
 
