@@ -25,7 +25,9 @@ After karajini we went to Tom price but we didn't do much there
 exept swim in the pool.
 
 After Tom price we went to Point Sampson. We walked to a beach called Honeymoon Cove and the water was beautifully crystal clear.
+
 <img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541641856/oz/emily-honeymoon-cove.png">
+
 **Me at Honeymoon Cove**
 
 ## Arriving in Oz
