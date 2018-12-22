@@ -32,7 +32,7 @@ After Tom price we went to Point Sampson. We walked to a beach called Honeymoon 
 <img src="https://res.cloudinary.com/dx97qkqq4/image/upload/v1541641856/oz/emily-honeymoon-cove.png">
 
 **Me at Honeymoon Cove**
-
+After Honeymoon Cove we went for a day trip to Pannawonica,a mining town were mum used to live when she was young.It was very hot because it was around forty degrees so we jumped in the pool there.That same day we kept driving to a rode stop at Robe River it was ok exept long drop toilets that smelt realy bad.We stayed one night there and then moved on to Exmouth and the ningaloo reef which is very pretty!
 ## Arriving in Oz
  
 It was very strange being on the plane with time racing by because of jet lag. I had dinner straight after breakfast and then suddenly it was midnight! Our first night in Oz was sleeping in a bus in mum's friends property. Their property is about one hundred acres! Now we are staying in Bridgetown with my grandparents. We are going to stay here for the next six months. I love my room because it is on the balcony. One wall is completly made of glass.  
