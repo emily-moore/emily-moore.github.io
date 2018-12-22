@@ -1,5 +1,7 @@
 ## Kangaroo and Emu feeding!
 
+**7th November 2018**
+
 We went to Donnelly River and there they feed wild animals of Oz although they didn't seem that wild because I was able to pet and  feed them out of my hand. I also saw a baby kangaroo which is called a Joey. I also saw emus and emu chicks. The emus were very aggressive over the baby emus. 
   
 
@@ -12,6 +14,8 @@ We went to Donnelly River and there they feed wild animals of Oz although they d
 **Emu and emu chicks**
 
 ## Road trip
+
+*12th October - 5th November 2018*
 
 We  set of on a big camping adventure for three or four weeks. 
 We set of from Bridgetown to mum's friends in Rollystone we stayed there for four nights. 
